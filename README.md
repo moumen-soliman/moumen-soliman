@@ -1,1 +1,1 @@
-### Making cool apps and stuff :star: I'm a Software engineer by day and a mentor by night who loves open source & coffee :muscle: ~ JavaScript fan :fire:
+### Building cool apps and projects ⭐ Software engineer by day, mentor by night. Passionate about open source, coffee, and JavaScript 🔥
